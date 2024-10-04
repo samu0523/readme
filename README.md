@@ -16,7 +16,6 @@
 
 - **en casa:** jugar videojuegos y ver streaming
 - **fuera de casa:** airsoft
-- **Identidad:** [Experiencias relacionadas con la búsqueda de identidad]
 
 ## estudios
 - primaria
