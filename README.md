@@ -22,5 +22,5 @@
 - primaria
 - ESO
 - bachilllerato 
-y esa es mi corta vida, [corta pero intensa](![image](https://github.com/user-attachments/assets/00b41e4c-5963-491a-8f24-963c43bbb65b)
+y esa es mi corta vida, [corta pero intensa](https://media1.tenor.com/m/XZ2KCGSGJ8cAAAAC/wtf-boy.gif)
 
