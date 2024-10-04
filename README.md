@@ -22,4 +22,4 @@
 - primaria
 - ESO
 - bachilllerato 
-y esa es mi corta vida, [corta pero intensa](https://media1.tenor.com/m/XZ2KCGSGJ8cAAAAC/wtf-boy.gif)  
+y esa es mi corta vida, [corta pero intensa](https://tenor.com/es/view/wtf-boy-gif-4946898)
