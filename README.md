@@ -9,7 +9,7 @@
 
 - **Música:** me gusta todo tipo de musica
 - **Deportes:** padel
-- **juegos: que mas juego** [mortal kombat y overwach]
+- **juegos: que mas juego** [mortal kombat y overwach] [y un poquito al valo](https://media.tenor.com/xU-4bxFkXSQAAAAi/segall-dance.gif)
 - **Arte:** [Intereses en pintura, escritura, etc.]
 
 ## entretenimientos 
